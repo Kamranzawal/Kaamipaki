@@ -1,1 +1,0 @@
-# Kaamipaki pakistan zindabad
